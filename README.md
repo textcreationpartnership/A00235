@@ -37,8 +37,12 @@ This keyboarded and encoded edition of the
 
 #####Body#####
 
+1. A new Song, called Jacke Doues Resolution, by which he doth show, That he cares not a rush how ere the world goe.
+O all my good Friends, these presents I send,yet neyther to beg nor to craue,though some haue store,
+    _ The second part, To the same tune.
+
 #####Back#####
-A new song, called Jacke Doues resolution by which he doth show, that he cares not a rush how ere th
+Printed at London for Iohn Wright and are to be sold at his shop in Giltspur-street at the signe of 
 **Types of content**
 
   * There are 96 **verse** lines!
